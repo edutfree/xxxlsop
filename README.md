@@ -1,16 +1,12 @@
 # 星云机场官网 xxxlsop 2025最新入口地址 + 优惠码
 
-**星云机场跑路了吗？** xxxlsop跑路了吗？
-
-暂时没有。但是机场天生就有跑路风险，老牌机场也有跑路的，为尽可能减少损失，选购套餐可按月支付。
-
 下面是星云机场官网xxxlsop最新地址：
 
 永久官网：[xxxlsop.com](https://xuv.cc/out/xls)
 
-地址1：[https://www.xxxlssop.xyz/#/register?code=pDO1DL3K](https://www.xxxlssop.xyz)
+地址1：[xxxlssop.one](https://user.xxxlssop.one/#/register?code=pDO1DL3K)
 
-地址2：[https://www.xxxlsoop.xyz/#/register?code=pDO1DL3K](https://www.xxxlsoop.xyz)
+地址2：[pixcraft.xyz](https://user.pixcraft.xyz/#/register?code=pDO1DL3K)
 
 [![星云机场官网xxxlsop 最新登录地址](xxxlsop_20250115_235946.png)](https://xuv.cc/out/xls)
 
@@ -40,4 +36,10 @@
 
 ## 星云机场官网xxxlsop优惠码
 
-已经超低价了，[星云机场](https://xuv.cc/out/xls)无需优惠码也是最低价！
+最新优惠码：[星云](https://xuv.cc/out/xls)
+
+所有套餐8折优惠；
+
+**星云机场跑路了吗？** xxxlsop跑路了吗？
+
+暂时没有。但是机场天生就有跑路风险，老牌机场也有跑路的，为尽可能减少损失，选购套餐可按月支付。
