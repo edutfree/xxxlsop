@@ -2,7 +2,7 @@
 
 下面是星云机场官网xxxlsop最新地址：
 
-永久官网：[xxxlsop.com](https://xuv.cc/out/xls)
+永久官网：[cdn.xxxlsop3.com](https://xuv.cc/out/xls)
 
 地址1：[xxxlssop.one](https://user.xxxlssop.one/#/register?code=pDO1DL3K)
 
