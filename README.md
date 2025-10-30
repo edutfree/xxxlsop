@@ -4,7 +4,7 @@
 
 永久官网：[cdn.xxxlsop3.com](https://xuv.cc/out/xls)
 
-地址1：[xxxlssop.com](https://user.xxxlssop.com/#/register?code=pDO1DL3K)
+地址1：[xxxlsop.com](https://user.xxxlsop.com/#/register?code=pDO1DL3K)
 
 地址2：[xing-yun-1.com](https://user.xing-yun-1.com/#/register?code=pDO1DL3K)
 
