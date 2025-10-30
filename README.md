@@ -4,9 +4,9 @@
 
 永久官网：[cdn.xxxlsop3.com](https://xuv.cc/out/xls)
 
-地址1：[xxxlssop.one](https://user.xxxlssop.one/#/register?code=pDO1DL3K)
+地址1：[xxxlssop.com](https://user.xxxlssop.com/#/register?code=pDO1DL3K)
 
-地址2：[pixcraft.xyz](https://user.pixcraft.xyz/#/register?code=pDO1DL3K)
+地址2：[xing-yun-1.com](https://user.xing-yun-1.com/#/register?code=pDO1DL3K)
 
 ---
 
