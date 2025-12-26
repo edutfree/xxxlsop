@@ -8,6 +8,14 @@
 
 地址2：[xing-yun-1.com](https://user.xing-yun-1.com/#/register?code=pDO1DL3K)
 
+## 星云官网xxxlsop优惠码
+
+长期9折优惠码：[星云](https://xuv.cc/out/xls)
+
+双旦月付限时8折优惠码：[xingyun8888](https://xuv.cc/out/xls)
+
+双旦年付限时9折优惠码：[xingyun9999](https://xuv.cc/out/xls)
+
 ---
 
 **温馨提示：任何服务均有跑路风险，请自行注意防范！**
@@ -39,16 +47,6 @@
 星云套餐网络延迟低，套餐价格便宜，低至￥5/月。
 
 [![星云套餐价格](xlsop_20240621_104548.png)](https://xuv.cc/out/xls)
-
-## 星云官网xxxlsop优惠码
-
-最新优惠码：[星云](https://xuv.cc/out/xls)
-
-所有套餐8折优惠；
-
-钻石套餐王者套餐专属优惠码：[8855](https://xuv.cc/out/xls)
-
-购买钻石王者套餐时输入验证即可。
 
 ---
 
