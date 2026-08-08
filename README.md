@@ -4,9 +4,9 @@
 
 永久官网：[cdn.xxxlsop3.com](https://xuv.cc/out/xls)
 
-地址1：[xxxlsop.com](https://user.xxxlsop.com/#/register?code=pDO1DL3K)
+地址1：[xxxlsop.com](https://www.xydizhi.net/#/register?code=pDO1DL3K)
 
-地址2：[xing-yun-1.com](https://user.xing-yun-1.com/#/register?code=pDO1DL3K)
+地址2：[xing-yun-1.com](https://www.xingyundizhi.com/#/register?code=pDO1DL3K)
 
 ## 星云官网xxxlsop优惠码
 
